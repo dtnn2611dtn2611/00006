@@ -19,4 +19,4 @@
 本站采用全站HTTPS加密，确保用户隐私安全，搭配全球CDN加速，保证高速加载体验。页面设计响应式，适配各种设备，减少广告干扰，提供干净舒适的观影环境。高清预览图、详细影片信息助您轻松选择，享受极致视觉盛宴。
 
 无论您是喜欢高清无码的激情演出，还是剧情丰富的精品作品，这里都是您的最佳选择。立即收藏本站，免费在线观看最新最全的日本AV免费影片，体验高清、流畅、安全的观影服务！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtnn2611dtn2611/00006 ）</span>
